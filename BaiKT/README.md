@@ -1,0 +1,1 @@
+﻿Lấy động lực thứ hai sẽ code nốt :v
